@@ -1,2 +1,2 @@
 # BeanManwebsite
-this is for my website this is mine and i home you enjoy
+This i my website and i hope you enjoy what is on it.
